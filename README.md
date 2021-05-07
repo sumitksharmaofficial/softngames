@@ -26,7 +26,10 @@ COD4 Modern Warfare **1st
 Link 1 (Dodi-repacks) 3.9GB ☺
 https://drive.google.com/drive/folders/1nhuQgiHSAc2JBqGKFGNXhqtANbErsGMq?usp=sharing
 
-Link 2 (lightrepacks) 4.2GB 
+Link 2 (lightrepacks) 4.2GB https://drive.google.com/drive/folders/1Vg1PExxVwLFyWFGtRy7XU8Iy8PrSXMYK?usp=sharing
+
+Ocean of games
+
 http://oceanofgames.com/far-cry-2-download-free/
 
 ======================================================
